@@ -1,2 +1,2 @@
 
-# [vedatbora.tech](https://www.google.com)
+# [vedatbora.tech](https://vedatbora.tech)
