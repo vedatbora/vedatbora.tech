@@ -1,2 +1,2 @@
-# vedatbora.tech
-# Personal Website
+
+# [vedatbora.tech](https://www.google.com)
