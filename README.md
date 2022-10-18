@@ -1,0 +1,2 @@
+# vedatbora.tech
+# Personal Website
